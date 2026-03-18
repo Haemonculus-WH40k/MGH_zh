@@ -1,4 +1,4 @@
-## Promissio Heinrici regis,quam fecit Hildebrandoa papae, qui et Gregorius 国王的承诺：亨利国王对教宗希尔德布兰德（亦称格列高利）的承诺
+## Promissio Heinrici regis,quam fecit Hildebrandoa papae, qui et Gregorius 亨利国王对教宗希尔德布兰德（亦称格列高利）的承诺
 
 Consilio fidelium nostrorum admonitus, sedi apostolicae et tibi Gregorio papae debitam in omnibus obedientiam servare promitto, et quaecunque eiusdem sedis vel tui honoris imminutio per nos orta videtur, devota satisfactione emendare curabo.
 
