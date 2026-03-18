@@ -88,8 +88,44 @@ Primum de maioribus capitulis hoc placuit omnibus, ut ecclesiae Christi, quomodo
 
 关于盗贼：凡窝藏盗贼超过七夜者，须缴纳罚金。若伯爵隐瞒盗贼且不愿交出受审，则剥夺其官职。
 
-34. Interdiximus ut omnes Saxones generaliter conventus publicos nec faciant, nisi forte missus noster de verbo nostro eos congregare fecerit.
+25. De pignore, ut nullatenus alterum aliquis pignorare praesumat. Et qui hoc fecerit, bannum persolvat.
 
-我们严禁萨克森人举行任何形式的公共集议，除非是由我们的钦差奉命召集。各伯爵应在其职守内执行判决，祭司应监督其不得违反此令。
+关于抵押：任何人不得擅自强行扣押他人的财物作为抵押。凡违者，应缴纳罚金。
+
+26. Ut nulli hominum contradicere viam ad nos veniendo pro iustitia reclamandi aliquis praesumat. Et si aliquis hoc facere conaverit, nostrum bannum persolvat.
+
+任何人不得阻碍他人为了寻求司法公正而前来觐见我们。若有人企图阻拦，应缴纳我们的罚金。
+
+27. Si quis homo fideiussorem invenire non potuerit, res illius in forbanno mittantur usque dum fideiussorem praesentet. Si vero super bannum in domum suum intrare praesumpserit, aut solidos decem aut unum bovem pro emendatione ipsius banni conponat; et insuper unde debitor exstitit, persolvat. Si vero fideiussor diem statutum non observaverit, tunc ipse tantum damni incurrat quantum manus sua fideiussoris exstitit. Ille autem qui debitor fideiussori exstitit, duplum restituat pro eo quod fideiussorem in damnum cadere permisit.
+
+若某人无法找到保证人，其财产应予以查封（in forbanno），直至其提供保证人为止。若有人在封印期间擅自进入其被查封的房屋，须缴纳十个金币或一头公牛作为违罚赔偿；此外，还须清偿其债务。若保证人未能在约定日期履行义务，则他应承担其担保额度内的损失。而拖累保证人遭受损失的债务人，则应向保证人支付双倍的赔偿。
+
+28. De praemiis et muneribus, ut munera super innocente nullus accipiat. Et si quis hoc facere praesumpserit, nostrum bannum solvat. Et si, quod absit, forte comis hoc fecerit, honorem suum perdat.
+
+关于受贿与礼物：任何人不得收受贿赂以陷害无辜者。凡胆敢违者，缴纳我们的罚金。若伯爵（愿上主不让此事发生）竟犯此罪，则应剥夺其官职。
+
+29. Ut universi comites pacem et concordiam ad invicem habere studeant. Et si forte inter eos aliqua discordia aut conturbium ortum fuerit, aut nostrum solatium vel perfectum pro hoc non demittant.
+
+各伯爵应力求彼此间保持和平与和谐。若他们之间不幸发生争执或动乱，不得因此影响对我们的效忠支持（solatium）或尽职。
+
+30. Si quis comitem interficerit, vel de eius morte consilium dederit, hereditas illius ad partem regis eveniat, et in ius eius redigatur.
+
+若有人杀害伯爵，或密谋杀害伯爵，其遗产应归王室所有，收归国王治下。
+
+31. Dedimus potestatem comitibus bannum mittere infra suo ministerio de faida vel maioribus causis in solidos 60. De minoribus vero causis comitis bannum in solidos 15 constituimus.
+
+我们授予各伯爵在其辖区内就血亲复仇或重大案件设定罚金的权力，额度为60金币。对于较小案件，我们将伯爵的罚金设定为15金币。
+
+32. Si cuilibet homini sacramentum debet aliquis, aframeat illum ad ecclesiam sacramenta ad diem statutum. Et si iurare contempserit, fidem faciat, et solidos quindecim componat qui inactivus apparuit, et deinceps causam pleniter emendare faciat.
+
+若某人依约为他人负有宣誓义务，应传唤其在指定日期前往教堂进行宣誓。若其轻蔑拒绝宣誓，则须提供担保（fidem faciat），且该违约者须缴纳15金币，并在此后彻底解决其法律诉讼。
+
+33. De periuris, secundum legem Saxonorum sit.
+
+关于伪证罪，应依照萨克森人的法律进行处置。
+
+34. Interdiximus ut omnes Saxones generaliter conventus publicos nec faciant, nisi forte missus noster de verbo nostro eos congregare fecerit. Sed unusquisque comes in suo ministerio placita et iustitias faciat. Et hoc a sacerdotibus consideretur, ne aliter faciat.
+
+我们严禁所有萨克森人举行一般的公共集会，除非是由我们的钦差奉命召集。各伯爵应在其辖区内进行集议和审判。祭司对此应予以监督，确保不发生违规行为。
 
 [返回目录](index)
