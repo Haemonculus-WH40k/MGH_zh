@@ -11,6 +11,8 @@
 - [CAPITULARE GENERALE A. 783. 公元783年通用法令（法兰克与伦巴第）](kmc_cg783)
 - [CAPITULARE PADERBRUNNENSE A. 785. 帕德博恩法令](kmc_cp)
 - [CAPITULARE LANGOBARDICUM A.786 公元786年伦巴第法令](kmc_cl786)
+- [ENCYCLICA DE LITTERIS COLENDIS 论文学研究](kmc_edls)
+- [CAPITULARE ECCLESIASTICUM A. 789 公元789年教会法令](kmc_ce789)
 
 
 
