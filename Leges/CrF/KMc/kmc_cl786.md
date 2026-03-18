@@ -4,7 +4,7 @@ Anno 786 post Hardradi comitis et Thuringorum rebellionem, quae magnum in Karoli
 
 公元786年，在哈德拉德伯爵和图林根人的叛乱（该叛乱曾造成查理王国的巨大动荡）被镇压后，国王认为应让受其统治的各族人民通过誓言的纽带团结起来。根据第6、7、9章的内容，我推测该法令是由皮平国王颁布的。我尝试根据巴黎图书馆第4613号唯一典籍恢复了文本。
 
-1.De his feminis qui se Deo voverant, et se monachica veste induerant, et postea se maritis copulaverunt, ut inquiratur unusquisque in iudiciariam sibi commissas ubi eas invenerint, ut sine dilatatione eas ab ipsis illicitas coniunctionibus separare debeant, ut ipsas de supra memorata inlicita coniunctione ad poenitentiae recurrant medicamentum.
+1. De his feminis qui se Deo voverant, et se monachica veste induerant, et postea se maritis copulaverunt, ut inquiratur unusquisque in iudiciariam sibi commissas ubi eas invenerint, ut sine dilatatione eas ab ipsis illicitas coniunctionibus separare debeant, ut ipsas de supra memorata inlicita coniunctione ad poenitentiae recurrant medicamentum.
 
 关于那些曾向天主许愿、已穿上修女服，此后却又与丈夫结合的女性：各级官员应在其受托管辖的司法区内进行搜寻，无论在何处发现她们，均应毫不拖延地强迫她们脱离这种非法的结合，以便让她们从上述非法结合中回归，寻求补赎（poenitentiae）的救治。
 
