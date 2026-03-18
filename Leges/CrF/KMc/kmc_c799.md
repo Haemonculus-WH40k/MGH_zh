@@ -110,9 +110,9 @@ In Christi nomine. Anno feliciter undecimo regni domini nostri Karoli, regis glo
 
 关于此前已被明令禁止收取的通行税，除古时已有的收费点外，任何地方不得擅自收取。
 
-18b. Item placuit de sanctimonialibus mulieribus qui se copulaverunt viris aut adulterio se polluerunt, ut disiungantur, et intrent in monasteria, tam viri quamque et feminae, cum rebus suis et cum illa compositione quam in publico dare debuerunt vel mundoaldo eius...
+18b. Item placuit de sanctimonialibus mulieribus qui se copulaverunt viris aut adulterio se polluerunt, ut disiungantur, et intrent in monasteria, tam viri quamque et feminae, cum rebus suis et cum illa compositione quam in publico dare debuerunt vel mundoaldo eius. De illis vero viris paupertinis qui nihil habent, ut supra et ipsi disiungantur, et si res non habent qualiter in monasterio vivant, parentes proximi eos nutriant, et caveant iterum non peccent. Quod si amplius in ipso mala accesserint, mundoaldo eius sit culpabilis solidos 30, et ipsa intret in monasterium cum poena quae mundoaldo eius obligaverat, et cum illa compositione adulterii sui. Ancilla vero quae cum voluntate domini sui vestem religiosam susceperit, et postmodum adulteraverit aut maritum duxerit, sit dominus eius culpabilis sol. 1.
 
-18b. 同样决定：凡与男子结合或因通奸而玷污身份的修女，必须解除其关系；无论是涉事男子还是女子，都应带着其财产以及应当依法缴纳的补偿金（或付给其监护人），送入修道院……（图片此处被切断）
+18b. 同样决定：关于那些与男子结合或因通奸而玷污身份的修女，必须将他们拆散，且男女双方均应进入修道院。他们应带着自己的财产，并缴纳依照法律应向公众或其监护人（mundoaldo）支付的补偿金（compositione）。至于那些一贫如洗、一无所有的男子，亦应如前所述将其拆散；若他们没有财产维持在修道院内的生活，则应由其近亲供养，并严防其再次犯罪。若在此事中出现了更严重的恶果，其监护人应被罚款 30 金币，且该女子必须进入修道院，同时承担其监护人所欠的惩罚以及她因通奸行为所欠的补偿金。至于那些经主人同意穿上修女服（入教）的女奴，若此后发生通奸或私自结婚的行为，其主人应被罚款 1 金币。
 
 19. De mancipia quae vendunt, ut in praesentia episcopi vel comitis sit, aut in praesentia archidiaconi, aut centenarii, aut in praesentia vicedomini, aut iudicis comitis, aut ante bene nota testimonia. Et foras marca nemo mancipium vendat. Et qui hoc fecerit, tantas vices bannos solvat quanta mancipias vendidit.Et si non habet pretium, in wadio pro servo semetipsum comiti donet, usque dum ipsum bannum solvat.
 
