@@ -1,495 +1,3 @@
-KAROLI MAGNI
-CAPITULARIA.
-
-CAPITULARE GENERALE.
-Edictum a Baluzio ex codiceSanctiVincentii Laudunensis"publici
-iuris factum,atque anno 769 adscriptum,prout ex capite 18 conii-
-cere licet,certe primis Karoli annis et fratre superstite promulga-
-tum est.Singula eius praecepta ex Capitulari Rarlomanni a.742
-aliisque constitutionibus ecclesiasticis fluxisse videntur (cf.v.c.cp.7 30
-cum Bonifacii epistola 73 apud WVuirdtwein p.197).Benedicti libro
-tertio capp.123-140 tota constitutio,praeter tamen caput 16,in-
-doctis clericis periculosius,repetita est.Cuius quidem ope textum
-Baluzianum recensui,quum in codice olim Laudunensi Sancti Vin-
-centii,iam inter regios Parisienses Nro.4788 insignito,capitulare 3s
-nostrum non reperissem.
-
-KAROLI MAGNI CAPITULARIA.
-33
-arolus,gratia Dei rex remnigue Francorum rector,et devotus sanctae ecclesiae defen-79.
-sor,atque adiutor in omnibus apostolicae sedis.Hortatu^omnium fidelium nostrorum,
-et maxime episcoporum ac reliquorum sacerdotum consultu,servis Dei per omnia 742,2.
-omnibus armaturam portare vel pugnare,aut in exercitum et in hostem pergere,omnino
-5 prohibemus,nisi illi tantummodo qui propter divinum ministerium,missarum scilicet
-solemnia adimplenda et sanctorum patrocinia portanda,ad hoc electi sunt;id esst,unum
-vel duos episcopos cum capellanis presbyteris princeps secum habeat,et unusquisque
-praefectus unum presbyterum qui hominibus peccata confitentibus iudicare et indicare
-poenitentiam possit.
-10
-2.Ut sacerdotes neque christianorum neque paganorum sanguinem fundant.
-3.Omnibus servis Dei venationes et sylvaticas vagationes cum canibus,et ut ac-742,2.
-cipitres et falcones non habeant,interdicimus.
-4.Statuimus ut secundum canonicam cautelam omnes undecunque supervenientes 742,4.
-ignotos episcopos,vel presbyteros,ante probationem synodalem in ecclesiasticum mini.
-1s sterium non admitteremus.
-5.Si sacerdotes plures uxores habuerint,vel sanguinem christianorum vel pagano-
-rum fuderint,aut canonibus obviaverint,sacerdotio priventur,quia deteriores sunt
-secularibus.
-6.Decrevimus ut secundum canones unusquisque episcopus in sua parrochia solli-742,5.
-2citudinem adhibeat,adiuvante grafione qui defensor ecclesiae est,ut populus Dei paganias
-non faciat;sed ut omnes spurcitias gentilitatis abiciat et respuat,sive profana sacrificia
-mortuorum,sive sortilegos vel divinos,sive phylacteria et auguria,sive incantationes,
-sive hostias immolatitias,quas stulti homines iuxta ecclesias ritu pagano faciunt sub
-nomine sanctorum martyrum vel confessorum Domini;qui potius quam ad misericor-
-25 diam sanctos suos ad iracundiam provocant.
-7.Statuimus ut singulis annis unusquisque episcopus parrochiam suam sollicite cir-
-cumeat,et populum confirmare et plebes docere et investigare,et prohibere paganas ob-
-servationes,divinosque vel sortilegos,aut auguria,phylacteria,incantationes,vel omnes
-spurcitias gentilium,studeat.
-30
-8.Decrevimus quoque iuxta sanctorum canones,ut unusquisque presbyter in par-742,3.
-rochia habitans episcopo subiectus sit illi in cuius parrochia habitat,et semper in qua-
-dragesima rationem et ordinem ministerii sui,sive de baptismo,sive de fide catholica,
-sive de precibus,et ordine missarum,episcopo reddat4.Et quandocunque iure canonico
-episcopus circumeat parrochiam ad populos confirmandos,presbyter semper paratus sit
-35 ad suscipiendum episcopum,cum collectione et adiutorio populi qui ibi confirmari debet.
-Et in coena Domini semper novum chrisma ab episcopo suo quaerat.Et de vetere nul-
-lus baptizare praesumat,sed ardere in luminaribus ecclesiae faciat.
-9.Ut nemo accipiat ecclesiam infra parrochiam sine consensu episcopi sui,nec de
-una ad aliam transeat.
-40
-10.Ut de incestis et criminosis magnam curam habeant sacerdotes,ne in suis
-pereant sceleribus,et animae eorum.a districto iudice Christo eis requirantur.Similiter
-de infirmis et poenitentibus,ut morientes sine sacrati olei unctione et reconciliatione et
-viatico non deficiant.
-11.Ut ieiunium quatuor temporum et ipsi sacerdotes observent,et plebi denun-
-45 tient observandum.
-12.Ut ad mallum venire nemo tardet,primum circa aestatem,secundo circa
-autumnum.Ad alia vero placita,si necessitas fuerit,vel denunciatio regis urgeat,voca-
-tus venire nemo tardet.
-a)ita Balio teste coder Laudes Burchardus eto gm libro II.Benedicti ita distingntur:in omnibus.
-50 Apostolicae sedis hortatu,omniumque cte.b)lge illis at in Cap..72,2.sed illi habet Cop.18.VIL.c.123
-ttcod Gothanus itecrrei Kerolomami Copitulare t Beudictum ut stentia ipsa requirit;code
-dt:presbyteris.Et unusquisque princeps unum presbyterum secm habeat qui te.
-d)r.et
-ostendat.Bened.III.130.e)e.vetus non tardet ibid.f)ne ssue requirantur deest III.132.
-g)ipse
-sacerdos observet et p.denuntiet o.III.135.h)et alterum III.133.
-Legg.T.I.
-5
-
-34
-KAROLI MAGNI CAPITULARIA.
-769
-13.Ut quando denuntiatum fuerit pro rege vel pro fidelibus suis qualibet causa
-orationes facere,nemo ex hoc neglegens appareat.
-14.Nullus sacerdos nisi in locis Deo dicatis,vel in itinere positus in tabernacnlis
-et mensis lapideis ab episcopo consecratis,missas celebrare praesumat.Quod si\*prae-
-sumpserit,gradus sui periculo subiacebit.
-15.Sacerdotes qui rite non sapiunt adimplere ministerium suum,nec discere iuxta
-praeceptum episcoporum suorum pro viribus satagunt,vel contemptores canonum exi-
-stunt,ab officio proprio sunt submovendi quousque haec pleniter emendata habeant.
-16.Quicunque autem a suo episcopo frequenter admonitus de sua scientia,ut
-discere curet,facere neglexerit,procul dubio et ab officio removeatur,et ecclesiam quam 1o
-tenet,amittat;quia ignorantes legem Dei eam aliis annuntiare et praedicare non possunt.
-17.Ut nullus iudex neque presbyterum neque diaconum aut clericum,aut iuniorem
-ecclesiae,extra conscientiam pontificis per se distringat aut condemnare praesumat.Quod
-si quis hoc fecerit,ab ecclesia cui iniuriam inrogare dinoscitur,tamdiu sit sequestratus,
-quamdiu reatum suum cognoscat et emendet.
-15
-18.Ut nullus episcoporum vel secularium cuiuscunque alterius episcopi sive eccle-
-siae sive privati res,aut regnorum divisione aut provinciarum sequestratione,competere
-aut retinere praesumat.Quod si quis hoc facere tentaverit,tamdiu sit ab omnium cari-
-tate suspensus,et a communionis gratia sequestratus,quoadusque res ablatas cum fructuum
-satisfactione restituat.
-20
-a)qui III.136.b)cf.Concilii Aurelian.V.anno 519.canonem 14.apud Sirmond.concil.Galliae I.p.281,
-unde hoc caput fluxisse videtur.e)aut petere comcil.for.
-CAPITULARE DE BANNO DOMINICO.
-Constitutionem in Ortloffii V.Cl.libello de lege Salica pag.30
-latentem,iterum publici iuris fecimus ex codice bibliothecae regiae2s
-Babenbergensis,leges Salicam,Ribuariorumet Alamannorum continenti
-membranaceo saeculi IX.in 8.longiori,in cuius pagina 306 et 307
-repertam anno superiori exscripsi.Data esse videtur primis Karoli
-annis,certe'ante ea capitularia quibus annis 797 et 803 easdem
-leges Baioariis atque Saronibus superatis imposuit.
-30
-De illos octo bannus unde domnus noster vult quod exeant sol.60.
-1.Cap.Dishonoratio sanctae ecclesiae.
-2.
-Qui iniuste agit contra viduas.
-3.De orfanis.
-4.
-Contra pauperinus qui se ipsus defendere non possunt,qui dicuntur ur uer magon.35
-5.
-Qui raptum facit,hoc est qui feminam ingenuam trahit contra voluntatem pa-
-rentum suorum.
-a)VIII.octo c.b)exant c.
-1)cf.Capitulare Saxonicum a.797.c.1.2.-Conferre iuvabit et Additionem Benedicti,IV.c.
-42一45.
-90
-
-KAROLI MAGNI CAPITULARIA.
-35
-6.Qui incendium facit infra patriam,hoc est qui incendit alterius casam aut 772.
-scuriam.
-7.Qui harizhut facit,hoc est qui frangit alterius sepem aut portam aut casam
-cum virtute.
-5 8.Qui in hoste non vadit.
-Isti sunt octo banni domino regis unde exire debent de unoquisque solido 60.
-CAPITULARE A.779.
-Hari-
-stallio.
-Editioni nostrae capitularis antea ab Amerpachio,Sirmondo et Ba-
-luzio vulgati,codices hi inservierunt:
-10
-1)C.monasterii Sangallensis Nro.733.initio saeculi IX.exara-
-tus,quem plerumque sequitur editio nostra.Contulerunt eum Balu-
-zius,et in nostrae editionis usum V.Cl.WVechelinus.
-2)C.monasterii S.Pauli in Carinthia,initio saeculi IX.exara-
-tus atque a me exscriptus,cui in pluribus congruit:
-1s 3)C.bibl.regiae Parisiensis Nro.4613 m.saec.X.olim Thua-
-neus,primum a Baluzio,et iterum a me collatus.
-4)C.bibl.Guelferbytanae Blankenburgensis saec.X.
-5)C.bibl ducalis Gothanae saec.XI.proximesequitur codices 2,3,4.
-6)C.bibl.regiae Parisiensis Nro.4628 A.saec.X.ubi Capitulare
-20 inscribitur:Incipit decretum Karoli preciosi regis Francorum.
-Eadem
-fere inscriptio reperitur in
-6)C.bibl.eiusdem Nro.4626 m.saec.X.:,Incipit decretum Karoli
-preciosissimo rege.Liber olim bibliothecae Bigotianae,primum,a Ba-
-luzio,tum a me collatus est.
-25
-7)C.bibl.reg.Monacensis olim Tegernseensis,ab Amerpachio editus.
-8)Editio Sirmondi in Conciliis Galliarum,vel potius codex
-quem ipse vocat Aquitanicus.
-9)C.bibl.regiae Parisiensis inter Supplementa latina Nro.75
-signatus,atque a me collatus cum editis,saec.X.idem esse vide-
-a tur quem Baluzius Parisiensem et Claromontensem vocavit.Quam
-maxime cum eo congruunt.
-10)C.S.Vincentii Mettensis et 11)C.Palatinus,a Baluzio ad-
-hibiti.
-Eiusdem capitularis editionem pro regno Langobardorum recens con-
-3s quisito comparatam,hic primum vulgamus auctoritate codicum
-1)Chisiani saec.X.
-2)Cavensis saec.XI.quibus
-3)Gothanus et 4)Mutinensis apud Muratoriun plurimum con-
-gruunt;collatis quoque codicibus Ambrosiano,Londinensi,Floren-
-0 tino,Vindobonensi,Veronensi,et Estensi apud Muratorium.
-5\*
-
-36
-KAROLI MAGNI CAPITULARIA.
-Capitulare Francicum.
-Capitulare Langobardicum
-779.
-In Christi nomine".Anno feliciter undecimo
-Anno feliciter undecimo regni domini
-regni domini nostriKaroli,regis gloriosissimi,
-nostri
-Caroli gloriosissimi regis in mense
-in mense Martio,factum capitulare,quali-
-Martio.Facto capitulare,qualiter congre-
-ter congregatis in unum synodali concilio gatis in unum sinodale concilium episcopis,5
-episcopis,abbatibus,virisque inlustribus co-
-abbatibus virisque illustribus comitibus,una
-mitibus,una cum piissimo domino nostro,cum piissimo domino nostro secundum Dei
-secundum Dei voluntatem,pro causis opor-voluntatem pro causis oportunis consense-
-tunis consenserunt decretum.
-runt decretum.
-1.De metropolitanis episcopis,ut suf-
-Primo kapitulo.De metropolitanis epis-10
-fraganii episcopi eis secundum canones sub-copis,ut eorum suffragani episcopi eis se-
-iecti sint;et ea quae erga ministerium il-cundum canones subiecti sint,et ea quae
-lorum emendanda cognoscunt,libenti animo erga ministerium illorum emendanda cog-
-emendent atque corrigant.
-noscunt,libenti animo emendent atque cor-
-2.De episcopis.Ubi praesens episcopi rigant.
-15
-ordinati non sunt,ut sine tarditate ordinentur.
-2.De episcopatis.Ubi praesens epis-
-3.De monasteriis qui regulares fue.copi ordinati non sunt,sine tarditate ordi-
-runt,ut secundam regulam vivant;necnon nentur.
-ett monasteria puellarum ordinem sanctum
-3.De monasteriis qui regulares fue.
-custodiant,et unaquaeque abbatissa in suo runt,ut secundum regulam vivant;necnon 4 20
-monasterio sine intermissione resedeat.
-et monasteria puellarum ordinem sanctum
-4.Ut episcopi de presbiteris diaconi-custodiant,et unaquaeque abbatissa in suo
-bus et clericis infra illorum parrochia po-monasterio sine intermissione resedeat.
-testatem habeant secundum canones.
-4.Ut episcopi de presbiteris diaconi-
-5.Ut episcopi de incestuosis hominibus bus et clericis infra illorum parrochia vel 25
-emendandi licentiam habeant;seu et de vi-de suo ministerio potestatem habeant secun-
-duis infra suam parrochiam potestatem ha-dum canones facere.
-B.I.191.beant ad corrigendum
-5.Ut episcopi de incestuosis homini-
-6.Ut nulli liceat alterius clericum bus emendandi licentiam habeant',seu et
-recipere aut ordinare in aliquo gradu
-de viduis infra suam parrochiam potestatem 30
-7\*.De decimis.Ut unusquisque suam habeant ad corrigendum.Et si de ipsis
-decimam donet,adque per iussionem epis-incestuosis aliquis post iudicium episcopi in
-copi dispensentur.
-ipso incestu se iterum miserit,si alodem
-8.Ut homicidas aut caeteros reos qui habuerit,ipso fisco regis recipiat.
-legibus mori"debent,si ad ecclesiam con-
-6.Ut nulli liceat alterius clericum re-35
-fugerint,non excusentur",neque eis ibidem cipere nec ordinare in aliquo gradu,sine
-victus detur.
-dimissoria sui episcopi de cuius parrochia est.
-9.Ut latrones de infra inmunitatem
-7.De decimis,ut unusquisque homo
-illi iudicis ad comitum placita praesente-sua decima donet,et per iussionem et con-
-tur;et qui hoc non fecerit,beneficium et silium\*episcopi in cuius parrochia fuerit!40
-honorem perdat.Similiter'et vassus noster,
-dispensentur.
-si hoc non adimpleverit,beneficium et ho\_
-8.De homicidis et ceteris malefacto-
-norem perdat.Et qui beneficium non ha-ribus=,qui legibus aut pro pace facienda
-buerit,bannum solvat.
-10.De eo qui periurium fecerit,nul-a)Carolus Magaus cam pontifce romano et synodali con-
-lam redemptionem,nisi manum
-perdat.
-cilio inscriptio codicis Estensis.b)v.nobilis inlustri-45
-busm点.
-c)Pindol.et editi hic versut adiiciunt:
-a)In Ch.n.ex cod.1.b)felicissimo 1.
-c）sin0-
-Quae gens multa petit,Karolus sua iussa peregit,Rex
-dociali 2.sinodochialis 3.d)ror deest in 7.11.
-bonus,orbis honor.
-d)deest 1.2.
-）P.etia-
-f)ut 2.g)gor habetur in wo 1.
-conibus Iegitur in codd.V.Vn.Eat voce clericis omis
-h)ad c.deest 1.i)nemini 1.?9.edd.
-k)cupot
-Chis.Car.Ambros.Jut.diaconibus omittunt.f)ha-50
-deest 1.
-1)in cod.Tegernseensi inseritur hic caput
-beant -habeant desco!1.2.
-g）regendum1.2
-nliud de decimis,quod infra in Capitulari Karoli Lango
-h)postro 2.i)g nisi de suis hominibus clericum
-bardico cap.8.edlaturi sumus.
-m)morire 2.
-habuerit,nullatenus ad ordinandum ducere praesumat,
-n)excutiantur nul codL)nisi ad illam episcopum de cuius parochia est,in po
-niliter-perdat derunt in 5.9.10.11.Balus.segua-
-testate habere debet 3.4.(est,aut in cuius parrochin in
-tibus postposuif.P)bandum 1.
-p.h.d.)k)et c.adest in 1.2.3.4.1)in c.p.55
-￡.recepi任1.2.3.生.m）5 guentia usgue medi
-1)i.e.illius.
-opt11.d和ntim3.
-
-KAROLI MAGNI CAPITULARIA.
-37
-Quod si accusator contendere voluerit de morire debent.Nemo eos ad excusationem 779.
-ipso periurio,stent ad crucem.Et si iura-in aecclesia sua introire permittat;et si
-tor vicerit,legem suam accusator emendet.absque voluntate pastoris ibidem introierit,
-Haec vero de minoribus causis observan-tunc ipse in cuius ecclesia est,nullum vi-
-s dum.De maioribus vero rebus,aut de statu ctum ei donet nec alio dare permittat
-ingenuitatis,secundum legem custodiant.
-9.De latronibus.Ut latrones de infra
-\[10.De latronibus in custodiam mis-emunitate illos iudices et advocati ad comi-
-sis.De latronibus qui in custodiam missi tum placitum quando eis annuntiatum fue-
-sunt,ut nullus iudex publicus pretium pen-rit,praesententur.Et si dixerit,quod
-10 dat.Et si hoc fecerit,honorem suum per-illo latrone praesentare non potuisset',iu-
-dat.Et qui ecclesiam infregerit,moriatur.]rare debet,quod illost praesentare non po-
-11.De vindicta?et iudicio3 in latrones.tuisset,postquam ei denuntiatum fuerit,nec
-Factum testimonium episcoporum,absque.pro nulla iustitia dilatando illi latronis non
-peccato comitis esse dicunt,ita tamen consentisset,nec pro causa dilatationis de
-15 ut absque invidia aut absque occansione sua potestate,vel de suo ministerio ipsum
-mala,et nihil aliud ibi interponatur nisi latronem non iactasset.Et hoc iuret,ut
-vera iustitia ad perficiendum.Et si per per sua voluntate,si potest,ipsum latronem
-odium aut malo ingenio,nisi per iustitiam praesentare debeat ad iustitias faciendum.
-factendam,hominem disfecerit,honorem Et qui hoc non fecerit,beneficium et hono.
-20 suum perdat,et legibus contra quem iniuste rem perdat.Similiter et vassi dominici
-fecit,secundum penam quam intulit,emen-ipsum exemplum exinde sustineant.Et qui
-detur.
-suprascripto sacramento sine periurio iurare
-12.Capitula vero quae bonae memo-non potuerit,si beneficium habuerit aut
-riae genitor noster in sua placita constituit actum,per ipsum perdat,et si beneficium
-25 et in synodisf,conservare volumus.
-non habuerit bannum dominicum solvat.
-13.De rebus vero ecclesiarum,unde
-10.De periurio.Si quis periurium fe-
-nunc censush exeunt,decima et nona cum cerit,nulla redemptionem ei facere liceat,
-ipsoi censu sit soluta;et unde antea non nisi manum perdat\*.Et si ille qui prius
-exierunt,similiter nona et decima detur;illum sacramentum iurat,de illo periurio
-30 atque de casatis quinquaginta,solidum unum;probatus fuerit,et aliquis de suos iuratores
-et de casatis tringinta,dimidium solidum,dixerit quod nesciens se periurasset,aut hoc
-et de viginti,trimisse uno.Et de precariis:apud iudicium Dei adprobet verum esse aut
-ubi modo sunt,renoventur;et ubi non sunt,similiter manum perdat.De cuius causa
-scribantur.Et sit discretio inter precarias periurium fecerit,sicut lex loci illius,ubi
-35 de verbo nostro factas,et inter eas quae periurium factum est,a longo tempore fuit,
-spontanea voluntate de ipsis rebus ecclesia-
-de m eorum pretium emendare studeat.
-rum faciunt.
-11.De furto",vel de minoribus cau-
-14.De truste\*faciendo nemo prae-sis instituimus:si ille homo cuius causa iu-
-sumat
-rata fuerit,dicere voluerit,quod ille,qui
-40
-15.De cerariis et tabulariis atque car-
-iuravit,se sciens periurasset stent ad cru-
-tulariis,sicut a longo tempore fuit,observetur.
-a)ita 1.2.religui Iegut ut copitulere Fronefcum.
-16m.De sacramentis per gildonia"in-
-b)annuntiauerint 1.4.c)praesentent L.4.y.Est
-vicem coniurantibus,ut nemo facere prae-
-praesententur。
-d)Si autem latrones foris furtum
-sumat.Alio vero modo de illorum elemo-
-committentes,fugerint infra emunitatem,futura iedicen-
-tur sententia,.Et si cte,形a.(rero】Est.
-e)po-
-45 sinis,aut de incendio,aut de naufragio,taisset-potuisset eeiditn 1.2.
-f)i.latrones p.
-hane legem sola exhibet editio Sirmondi,deest in codi-
-V.Vn.Est.g)i.latrones fugire c.V.Vn.Eat.h)si
-vassi nostri hoe non adimpleverint,beneficium et hono-
-cibus onuibus.
-b)d.licet absque 2.5.c)et pacem
-rem perdant,et qui beneficium non habuerit,bannum
-confirmandam cod.Lond.
-d)cap.deest 3.
-e】n,
-domnus pippinus rex 7.
-f)et in s.deest 4.5.
-nostrum solvat.M.A.P.V'n.edd.i)cod.4.at in
-506.7.g)m6d068msum2.
-capitulari Francice.
-k)religoa capitis desunt in A.V.
-h)pensiones 7.
-i)i.
-sit velut et 2.5.c.deramt 5.c.i.c.desumnt 7.
-k)
-Vn.Est.Codices V.ct Vn.tomen addunt:et emendare
-e.hoste Pind.1)p.ad nos venienti iberno tempore
-studeat.Ouum vero cadem ler in codd.eisdem inter Pip-
-mansionem vetarej et que necessaria sunt,sicut vicino
-pini regis leges occurrat,hie tius lectiones subiicere tuea-
-suo ei vendat.y.Fa.E.m)deest 11.n)ildonea 2.
-Bit.1)perdat sicut ille fecit de cuius causa periurium
-55 nihil doma 3.geldiona 5.7.9.gilduniae 6"ghil-
-fecerit.Et si se purificatus fuerit quod neseienter se
-d如hie6 gildonea F以.gi过est adunacionem.gi
-periurasset,sicut lex ete.P.Pn.Est.m)de sno pre-
-adunanciam Fr.
-cio emendare stadeat id est widrigild componat.V.a.
-Eat.n)f.vel scaccho vel A.o)p.componat
-2)id est sematione membrorum Glossa cod.Lond.
-3)id est morte Glossa cod.Lond.
-aut in cruce contendat 4.campo ant cruce contendat I.
-V.Vi.E.
-
-38
-KAROLI MAGNI CAPITULARIA.
-779.
-quamvis convenentias faciant,nemo in hoc cem.Et si ille,qui iuravit',victus fuerit,
-iurare praesumat".
-quod se sciens b periurasset,suprascripta sen-
-17.De itinerantibus.Qui ad pala-tentia subiaceat.Et si ille,qui criminavit,
-tium aut aliubi pergunt,ut eos cum collecta alium periurium non approbaverit,legem
-nemo sit ausus adsalire.Et nemo alterius suam,cui periuratum esse dixerit,persolvat.5
-erbam defensionis tempore tollere praesumat,De maioribus vero causis legem,quam a
-nisi in hoste pergendum,aut missus noster longo tempore habuerunt,observentur.
-sit.Et qui aliter facere praesumit,emendet.Mentio enim facta est a nonnullis in pla-
-18.De teloneis qui iam antea for-cito quod habuimus in anno praeterito,et
-banniti fuerunt,nemo tollat nisi ibi ubi dictum est ibi,quia ubi palam apparet,quod 10
-antiquo tempore fuerunt.
-aut ille,qui crimen iniecerit,aut ille qui
-\[18 Item placuit de sanctimonialibus se defendere vult,periurare se debeant,ut
-mulieribus qui se copulaverunt viris aut in campo cum fustibus pariter contendant
-adulterio se polluerunt,ut disiungantur,et quam periurium absconse perpetrent.
-intrent in monasteria,tam viri quamque et
-124.De vindicta1 et iudicium2 in la-15
-feminae,cum rebus suis et cum illa com-tronibus factum.Testimonium episcoporum
-positione quam in publico dare debuerunt absque peccato comites facere possint,si ibi
-vel mundoaldo eius.De illis vero viris nec invidia nec alia occasio mala nec iniusta
-paupertinis qui nihil habent,ut supra et non interposuerit nisi vera iustitia ad per-
-ipsi disiungantur,et si res non habent qua-ficiendum et pacem confirmandum.Ut si20
-liter in monasterio vivant,parentes proximi quis latro de uno furto probatus fuerit,
-eos nutriant,et caveant iterum non peccent.unum oculum perdat,et si de duos furtos
-Quod si amplius in ipso mala accesserint,probatus fuerit oculum perdat et nasum ei
-mundoaldo eius sit culpabilis solidos 30,et cappiletur;et si de tres furtos probatus
-ipsa intret in monasterium cum poena quae fuerit,moriatur.Et de his duabus furtis 25
-mundoaldo eius obligaverat,et cum illa com-unde oculum unum et nasum perdere de-
-positione adulterii sui.Ancilla vero quae bet constituimus,ut dominus servi illius se-
-cum voluntate domini sui vestem religiosam cundum legem cui furta facta fuerint sol-
-susceperit,et postmodum adulieraverit aut vere debeat.De tres vero furtis unde mo-
-maritum duxerit,sits dominus eius culpabi-rire debetur,mors illius furtas illas exclu-30
-lis sol.1.
-datur.Et si comis sine culpa per invidia
-19.De mancipia quae vendunt,ut in aut iniusta occasione nisi per iustitia et pa-
-praesentia episcopi vel comitis sit,aut in cem faciendam hominem disfecerit,hono-
-praesentia archidiaconi,aut centenarii",aut rem suum perdat et legibus contra quem
-in praesentia vicedomini,aut iudicis comi-iniuste fecit secundum poenam quam intulit 35
-tis4,aut ante bene nota testimonia.Et fo-emendet.
-ras marca nemo mancipium vendat.Et qui
-13.De causa vero quas bonae memo
-hoc fecerit,tantas vices bannos solvati quanta riae genitor noster Pippinust in sua placita
-mancipias vendidit.Et si non habet pretium,et sinodos constituit,conservare volumus.
-in wadio pro servo semetipsum\*comiti do-
-14.De rebus vero aecclesiarum que 4s
-net,usque dum ipsum bannum solvat.
-usque nunc per verbo domni regis homines
-20.De brunias.Ut nullus foras nostro seculares in beneficium habuerunt,ut in an-
-regno vendere praesumat.
-tea sic habeant,nisi per verbo domni regis
-21.Si comis in suo ministerio iustitias ad ipsas ecclesias fuerint revocatas.
-Et si
-non fecerit,missos nostros de sua casal so-inde usque nunc ad partem aecclesiae deci-s0
-niare faciat usque dum iustitiae ibidem ma et nona exivit,et nunc in antea faciat;
-factae fuerint.Et si vassus noster iustitiam et insuper ad illas aecclesias de 50 casatos
-non fecerit,tunc et comis et missus ad solido uno reddat;de triginta medio solido,
-a)quamvis magoe praesumat decst 9.b)deest 11.
-b)deest 1.2.c)rellgua huius
-e)Hie aliud eaput ineipit in 1.4.7.et Gold.d)to-
-capitia desunt in 1.2.(3.)(4.)d)Lond.infra quidem 55
-loneis 1.ct Longob.e)furmanniti 7.f)er codice
-hoe caput txhibet,hoc vero loco cap.11.Capitularis
-Blankenb.fol..8版.9 oum in reliquis desit.g）si cod.
-Frencici 779.guod et in Mut.legi uidetur.e)cur.
-h)deest in cod.Lond.i)hic cod.1.aliud eoput ordi-
-tetur V.Va.E.f)deest 4.g)et s.decst 4.h)et
-tar.k).\&.pracsentei6.名praesente6·s.Pro prae-
-sic nos e.v.4.i)Matin.Toco hmias copitali coput 13.
-cio 9.1)causa Amb.V.Va.it.m)sonare 1.som.
-Capitularis Francici exkibet.
-60
-niare 5.Ame.sommare P.sompniare Pit.
-1)i.e.sematione membrorum L.2)i.e.
-4)id est seuldahis Glossa Lond.
-morte L.
-
-KAROLI MAGNI CAPITULARIA.
-39
-ipsius casa sedeant,et de suo vivant quous-de 20 tremisse uno et qui usque nunc 779.
-que iustitiam faciat.
-alium censum dedit,in antea sicut prius
-22.Si quis pro faida precium recipere fecit ita faciat.Et unde usque nunc nullum
-non vult,tunc ad nos sit transmissus,et censum exivit,et ipsa res aecclesiae sunt,
-s nos eum dirigamus ubi damnum minime censeantur,et4 ubi non sunt,scribantur.
-facere possit.Simili\*modo et qui pro faida Et sit discretio inter precarias de verbo
-pretium solvere noluerit,nec iustitiam exin-dominico factas,et inter eas quas episcopi
-de facere,in tali loco eum mittere volu-et abbates et abbatisse eorum arbitrio vel
-mus ut pro eodem maius damnum non dispositione faciunt,ut liceat eis quandoqui-
-10 crescat.
-dem eis placuerit,res quas beneficiaverint,
-23.De latronibus.Ita praecipimus ad partes ipsius aecclesiae recipere,facien-
-observandum,ut pro prima culpa non mo-tes ut unusquisque homo ad casa Dei in
-riatur,set oculum perdat;de secunda vero honore Deo fideliter et firmiter deserviat.
-culpa nasus ipsius latronis abscidatur;de
-terivero cap non emendaverit,mo.
-riatur.
-刀cansa1.causam2.
-Explicit decretum Karoli regis.
-a)alied coput incipit in 2.5.6.6".b)capuletur B.
-capeletur V.Vn.Esl.nasum perdat 2.3.
-20
 CAPITULARE EPISCOPORUM.
 779
 Anno 779 ut annales Alamannici referunt fames magna et mor-1
@@ -517,7 +25,7 @@ i)isto 1.2.k)inter e institato 1 inter se in statuto 2.
 1)Monum.Germ.T.I.p.40.
 
 40
-KAROLI MAGNI CAPITULARIA.
+
 779
 messium.Et qui tantum non possunt,iuxta quod possibilitas est,aut duos,aut unum.
 Comites vero fortiores libram unam de argento aut valentem",mediocres mediam libram.
@@ -571,7 +79,7 @@ cerent v.1.i)rocem inseruf,det iot codd.k)c.sicut 1.1)valeamus 2.3.m)ut suum 1.n
 libet 1.o)ploclamauerit 1.
 p）gamatos2.5 amaitos3.q）1ocil,
 
-KAROLI MAGNI CAPITULARIA.
+
 41
 6.Ut quando episcopus"per sua parrochia circata fecerit,comite vel sculdaz ad.781.
 iutorium preveat,qualeter ministerium suum pleniter perficere valeat secundum canoni-
@@ -760,7 +268,7 @@ deamt 1.2.e)uiuentibus 1.hahitans a.veniens a.B.f)tustia 1.tussia 2..)litora 2.l
 6米
 
 44
-KAROLI MAGNI CAPITULARIA.
+
 782.comite vel de ipso loco nobis adducantur sic,ita ut iurare valeant,ut neminem con-
 1 celent".Et positum1 est constitutum die quintodecimo post sanctum pascha;et si qui
 servos aut ancillas fugaces habuerit tam aecclesiastici seu curtis vel populo,in constituto
@@ -808,7 +316,7 @@ teratam pene maiorum nostrorum desidia reparare vigilante studio litterarum sata
 a)deest 2.b)misericordia 2.e)vigilanti 2.
 1)ef.Monument.Germ.SS.T.II.p.260 not.
 
-KAROLI MAGNI CAPITULARIA.
+
 45
 officinam,et ad pernoscenda studia liberalium artium nostro etiam quos possumus in-782.
 vitamus exemplo.Inter quae iam pridem universos veteris ac novi testamenti libros,
@@ -855,7 +363,7 @@ Florentini,Londinensis,Vindobonensis,Veronensis,Estensis apud
 Muratorium.
 
 46
-KAROLI MAGNI CAPITULARIA.
+
 783.
 Capitulare Francicum.
 Capitulare Langobardicum.
@@ -930,7 +438,7 @@ gationis 2.g)viri 2.h)diuersis 2.i)placitum 1.c)resspiciant 1.d)p.transacto anno
 k)conredit 1.illa corredet 2.
 e)religua hurius eopitis desunt 1.f)consedet 2.concedet 3.
 
-KAROLI MAGNI CAPITULARIA.
+
 47
 domni regis mercede ipsa aelymosina fiat in domni regis mercede ipsa elemosina fiat 783.
 facta,et infra triginta noctes impleta esse facta,et infra triginta noctes impleta esse
@@ -1006,7 +514,7 @@ cepta 2.n)ill.1.illius 2.o)spolitani 2.p)et 1.centini 2.4.5.h)pentauoli 1.
 sigillo 1.
 
 48
-KAROLI MAGNI CAPITULARIA.
+
 785
 CAPITULARE PADERBRUNNENSE A.785.
 Extat unicus horum capitulorum codex in bibliotheca Vaticana in-
@@ -1060,7 +568,7 @@ d)omnes corr.homines.
 45
 1)Vita S.Willehadi in Monum.Germ.II.383.
 
-KAROLI MAGNI CAPITULARIA.
+
 49
 derit,vel carnem eius ad commedendum dederit,vel ipsam comnederit,capitissen-785.
 tentiae punietur.
@@ -1125,7 +633,7 @@ Legg.T.I.
 7
 
 50
-KAROLI MAGNI CAPITULARIA.
+
 785.26.Ut nulli hominum contradicere viam ad nos veniendo pro iustitia reclamandi
 aliquis praesumat.Et si aliquis hoc facere conaverit,nostrum bannum persolvat.
 27.Si quis homo fideiussorem invenire non potuerit,res illius in forbanno mit-
@@ -1234,7 +742,7 @@ a)coneubam c.b)aut 1.illa?nova?c)sine c.d)permittant e.e)palenses c.f)si c.
 7米
 
 52
-KAROLI MAGNI CAPITULARIA.
+
 786
 9".Ut parata servitia habeant ipsi missi una cum comitibus qui in eorum mini-
 steriis fuerint,ut omnes generaliter hoc anno veniant hostiliter in solatio domni regis
@@ -1281,7 +789,7 @@ etiam humillima et Deo placita intentione ad hoc certatim discere,ut facilius et
 divinarum scripturarum mysteria valeatis penetrare.Cum autem in sacris paginis sche-
 1)Ann.Laurissenses a.786.Monum.SS.I.p.171.1.43.
 
-KAROLI MAGNI CAPITULARIA.
+
 53
 mata,tropi,et caetera his similia inserta inveniantur,nulli dubium est,quod ea unus-787.
 quisque legens tanto citius spiritualiter intelligit,quanto prius in litterarum magisterio
@@ -1332,7 +840,7 @@ a)s.dei ecclesiae 2.b)pacifici ac pie 2.e)deest 2.5.d)et oreque pietate 2.e)doct
 f)pascuae 1.g)docere 2.h)b.exemplo operum seu adhortatione Bal.
 
 54
-KAROLI MAGNI CAPITULARIA.
+
 789.reportare satagimini;ne lupus insidians aliquem canonicas sanctiones transgredientem,
 23.
 vel paternas traditiones universalium conciliorum excedentem,quod absit,inveniens de-
@@ -1407,7 +915,7 @@ custodientes,recesserint ab ecclesia sua,sive presbyteri,sive diaconi,sive in qu
 hinusam suscipi debent in alia ecclesia:sedcum omni necessitate cogantur ut redeant ad ecclesias sas.Aut si perman-
 serint,excommunicatos eos esse oportet.(Ibid can,17.)Si quis autem ausus fuerit aliquem qni ad alterum pertinet,ordi-
 
-KAROLI MAGNI CAPITULARIA.
+
 55
 O M N I B U S.
 789
@@ -1482,7 +990,7 @@ citra metropolitani episcopi conscientiam.
 65 6)(Conc.Antioch.can.20.)Qui in fundis et villis constituti sunt chorepiscopi,tametsi manus impositiones
 
 56
-KAROLI MAGNI CAPITULARIA.
+
 789.
 OMNI·CLERO.
 Mart.
@@ -1563,7 +1071,7 @@ unaquaque provincia convenire quo metropolitanus constituerit,et omnia quaecumqu
 Episcopi vero qui non convenerint,in propriis positi civitatibas,et non per profectionem absentes,maxime sup-
 peditante salute,et a necessariis et excusabilibus occupationibus liberi,fraternitatis intuitu corripiantur.
 
-KAROLI MAGNI CAPITULARIA.
+
 57
 E P I S C O P I S.
 789
@@ -1643,7 +1151,7 @@ Legg.T.I.
 8
 
 58
-KAROLI MAGNI CAPITULARIA.
+
 O M N I B U S
 23.
 23.Item in eodem concilio infra duo capitula,necnon et in decretis Leonis papae,ut
@@ -1722,7 +1230,7 @@ tizatus clericus esse voluisset,sponderet se uxorem omnino non ducere.
 6)(Cone.Chale.can.9.)Si quis clericus cum clerico causam habeat,episcopum suum non deserat,et ad iudi-65
 cia secularia currat,sed prius apud episcopum suum examinet causam,aut certe cum voluntate ipsius episcopi
 
-KAROLI MAGNI CAPITULARIA.
+
 59
 OMNIBUS·
 789
@@ -1803,7 +1311,7 @@ nosus est,non admittatur.Placet.
 8米
 
 60
-KAROLI MAGNI CAPITULARIA.
+
 789.
 SACERDOTIBUS.
 Mart
@@ -1882,7 +1390,7 @@ omnino nulla memoria martyrum probabiliter acceptetur,nisi nbi corpus aut aliqua
 alicuius habitationis,vel possessionis,vel passionis,fidelissima origine traditur.Nam que per somnia et per
 inanes quasi revelationes quorumlibet hominum,ubicunque constituuntur altaria,omnimodo reprobentur.
 
-KAROLI MAGNI CAPITULARIA.
+
 61
 O M N I B U S.
 789.
@@ -1957,7 +1465,7 @@ reantur
 )hucusque et Bened.lib.III.c.356.gue opad Isidorum desiderontur.
 
 02
-KAROLI MAGNI CAPITULARIA.
+
 789.
 OMNI B U S.
 Mart.
@@ -2036,7 +1544,7 @@ mandamus,ut si quis in illa commiserit,veniam sibi deinceps noverit demegari.
 canonum forma praestituit.Non est ergo penitus usurpandum,eisque sie ecclesiastica sunt inferenda praesidia,65
 ut nihil committatur inlicitum.
 
-KAROLI MAGNI CAPITULARIA.
+
 子
 E P I S C O P I S.
 789.
@@ -2101,7 +1609,7 @@ z)buntgodingi 2.gundbodingi 4.gonebii digni5.gunebodigni 3c.B.gundebanda lege vi
 1...a.E.
 
 64
-KAROLI MAGNI CAPITULARIA.
+
 nec testis sit posthaec,nec ad sacramentum accedat,nec in sua causa vel alterius iura-
 ”tor existat".
 OM N I B U S
@@ -2162,7 +1670,7 @@ i)deest 1.k)concupiscis 1.1)decet B.m)deest 1.n)deest 1.3.o)ad 2.p)deest 1.q)ad-
 monendum est B.r)tuum 1.s)deest 1.t)diligentur 1.u)confident 1.3.se deest B.v)SACER-
 DOTIBUS 3.B w)OMNIBUS 3.B.tota rubrice derst 1.4.x)deest 1.
 
-KAROLI MAGNI CAPITULARIA.
+
 65
 sterium bonis moribus ornent,seu*alii canonici observantiae ordines,vel monachici4789
 Mart
@@ -2296,7 +1804,7 @@ r)ab 1.s)acclesia adiecto 4.1.t)deest 1.u)aeternem 1.v)deest 1.w)beneficia 1.
 x)com-
 sequentur 4.B.y)omnia 1.z)deest 1.
 
-KAROLI MAGNI CAPITULARIA.
+
 G7
 Deo,demte t patietide casitaeoieenignitae eser
 de elimosinis et confessione peccatorum suorum,et ut debitoribus suis,secundum domi-
@@ -2348,7 +1856,7 @@ a)sarabatos I.b)temptat 1.
 9*
 
 68
-KAROLI MAGNI CAPITULARIA.
+
 789
 7.Ut ubi corpora sanctorum requiescunt,aliud oratorium habeatur ubi fratres
 secrete possint orare.
@@ -2399,7 +1907,7 @@ Et praecipimus ut episcopi vel abbates non vadant per casas miscendo.
 a)deeat 1.b)uuinileodos 2.vuinileodus 3.uenileudus 5.uuinileodes 6.B.melius dis.4.c)sanguinis minua
 tionem 6.B.d)deest 1.e)conseruanda 1.conseruande 5.F)nomen 4.
 
-KAROLI MAGNI CAPITULARIA.
+
 69
 11.De eo quod missi nostri provideridebent,ne forte aliquis clamor super 789.
 episcopum vel abbatem seu abbatissam,vel comitem,seu super qualemcumque gradum
