@@ -1,4 +1,4 @@
-## EPISCOPORUM EPISTOLA GREGORIO VII. MISSA 沃尔姆斯宗教会议：众主教致格列高利七世的信函
+## EPISCOPORUM EPISTOLA GREGORIO VII. MISSA 沃尔姆斯宗教会议：众主教致格列高利七世的信函（1076）
 
 Sigifridus Magontinus archiepiscopus, Udo Treverensis, Willehelmus Traiectensis, Herimannus Metensis, Heinricus Leodiensis, Ricbertus Verdonensis, Bibo Tullensis, Iozemannus Spirensis, Burckhardus Halberstatensis, Wernherus Strasburgensis, Burchardus Basiliensis, Otto Constantiensis, Adalbero Wirciburgensis, Rotbertus Babenbergensis, Otto Ratisponensis, Ellinardus Frisingensis, Udalricus Eistatensis, Fridericus Monasteriensis, Eilbertus Mindensis, Hezil Hiltinishemensis, Benno Osineburgensis, Eppo Naumburgensis, Imadus Paterbrunnensis, Tiedo Brandaneburgensis, Burchardus Losannensis, Bruno Veronensis Hildebrando fratri.
 
