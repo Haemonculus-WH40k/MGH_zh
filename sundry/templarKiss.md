@@ -2,7 +2,7 @@
 
 *本篇为对Le Proces des Templiers(Jules Michelet)，即《圣殿骑士审判记录》中所有带有osculum（亲吻）一词的句子收集。*
 
-*众所周知，圣殿骑士被认为犯有鸡奸、背弃基督、接吻猥亵、崇拜偶像行为，而本篇专注整理与接吻有关的片段。内容总共为34条，按原文出现顺序排列，主要包括正常亲吻、不洁但执行的亲吻、不洁但未执行的亲吻，以及不洁亲吻的种种变体（简单来说，就是各种亲屁股）。其中较多供述称，接收入会者一度要求进行“不洁的吻”，但也并未强求非执行不可。当然，也有少数人说自己干了。*
+*众所周知，圣殿骑士被认为犯有鸡奸、背弃基督、接吻猥亵、崇拜偶像行为，而本篇专注整理与接吻有关的片段。内容总共为35条，按原文出现顺序排列，主要包括正常亲吻、不洁但执行的亲吻、不洁但未执行的亲吻，以及不洁亲吻的种种变体（简单来说，就是各种亲屁股）。其中较多供述称，接收入会者一度要求进行“不洁的吻”，但也并未强求非执行不可。当然，也有少数人说自己干了。*
 
 *值得一提的是，审判记录中commisceri（交媾）一词的出现数量约为osculum的两倍。可惜内容重复度极高，几乎所有骑士都说“修会允许该行为，但我没做。”故而不单独整理。*
 
@@ -179,12 +179,14 @@ Ad XXX, XXXI, XXXIIet XXXIIIarticulos inclusive, diligenter et sigillatim interr
 
 关于第 30、31、32 及 33 条条款，他在接受仔细且逐一的讯问时，否认了这些条款以及其中所含的全部及每一项内容。但他保留了如下交代并承认：在接纳教团兄弟入会时，接收者在仪式结束后，会给予他们一个‘和平之吻’，且仅限于嘴部，以此作为兄弟间的仁爱与情谊的标志。此外，被接纳者也会亲吻在场的三位或四位修士的嘴部，有时甚至更多，随天主所赐而行。
 
-## 33.
+## 34.
 Ad XXX–XXXIIIarticulos inclusive, diligenter et sigillatim interrogatus, respondens dixit quod die sue recepcionis ad ordinem Templi facte de se et de fratre Guillelmo de Caramanno nunc mortuo, per fratrem Raymundum de Gardia preceptorem domus Templi Mansi Dei qui adhuc vivit, preceptor in capella ejusdem domus, post recepcionem de se factam et de alio ejus confratre, idem frater Raymundus preceptor recepit ipsum et alium confratrem ad osculum pacis in signum fraterne dileccionis et caritatis, et in ore tantum osculatus fuit eos, et ipsi pari modo aliquos de astantibus confratribus ejusdem ordinis fuerunt osculati in ore tantum, exclusis et abjectis aliis deosculationibus nefandis de quibus agitur in articulis supradictis. Reliqua in dictis articulis contenta et eorum singula non credidit, sed negavit penitus esse vera.
 
 针对第30至第33条条款（含首尾），经逐条仔细询问，他作答称：在他本人与现已故去的Guillelmo de Caramanno入会之日，由当时尚在人世的……主持仪式。在他本人及另一位兄弟入会后，上述导师以和平之吻接纳了他与另一位兄弟，作为兄弟情谊与仁爱的标记，且仅以嘴对嘴之吻亲吻了他们；他们亦以同样方式，仅以嘴对嘴之吻亲吻了在场的几位同会兄弟。上述条款中所涉及的其他那些不洁之吻，则被排除并摒弃在外。对于上述条款中所载的其余内容及其各项，他概不相信，并完全否认其真实性。
 
-## 34.
+## 35.
 Adjecit eciam quod, tempore receptionum fratrum ad dictum ordinem, tam recipiens quam recepti vicissim sese deosculantur in ore tantum, abjectis ceteris deosculationibus turpibus et nefandis. Ad osculum autem oris admittuntur dicti fratres noviter recepti per fratres alios circumstantes et per recipientes eciam, ut inter se mutuam habeant caritatem, et ut semper fraterna dilectione utantur.
 
 他还陈述道：在接纳兄弟入该教团时，无论是接纳者还是被接纳者，都会依次仅在嘴部相互亲吻，而摒弃了其余那些下流且邪恶的亲吻。此外，上述新近入会的兄弟修士们，会接受周围在场的其他兄弟以及接纳者的嘴部亲吻，为的是使他们彼此之间保有仁爱，并始终践行兄弟之爱。
+
+[返回目录](index)
