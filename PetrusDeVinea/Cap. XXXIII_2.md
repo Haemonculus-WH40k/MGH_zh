@@ -1,0 +1,11 @@
+# Cap. XXXIII
+
+## Duci Venetiarum, animans eum ut perseveret devotus in fide, numerando multa servitia impensa sibi per eum et Venetos.
+
+## Latin
+
+Habet et merito nostrae benignitatis humanitas, unde tibi gratiarum rependat xenia, unde favoris multiplicis gratiam repromittat, dum sicut de tuae strenuitatis actibus ad nostrae Majestatis auditum gratifica semper nova proveniunt, dum sicut jam saepe operum experimento probavimus, circa honoris augusti fastigium, et quae amici sunt amicabiliter promoves, et quae affinis naturalis suasionis inductione disponis. Nec mirum si talem exhibere te satagis, cum dilectio te nobis pura conjungat: nec mirum si te tanta virtute conspicuum praesentium negociorum et temporis habitudo concedat, cum dilectionis indicia, [quam ad te, tanquam amoris integritate praecipuum hactenus immaculatam habuimus, et habemus] sic de charissima consorte tua, nepte nostra, intercedente pridem affinitate concreverint: sic carnis identitas, quae primitus in voluntatis gratitudine fuerat, necessitatis quodammodo nexibus annodarit, ut versa jam grana voluntatis in debitum, et velit et debeat tui honoris auspicia nostra Serenitas laudabiliter promovere. Studeat igitur tuae circumspectionis industria, quam securis profecto verbis alloquimur, nobilitatis imaginem, circa nostra negocia laudabilium actuum operatione depromere: studeat ut amicitia prima florigera in affinitatis nostrae provectu fructificet: studeat ut sic te nobis transcursus temporis affinem exhibeat, quod de nobis tanquam affinis stabili mente confidere videaris, cum praeter nostrae plenitudinem gratiae quam tibi favorabiliter pollicemur, te prae caeteris intimum tenere velimus amicum, et colere, velut charissimum desideremus affinem.
+
+## Chinese Translation
+
+我朝仁厚之心，理当有所回报，理应以隆礼酬谢于你，理应以更多恩惠相许；盖因你勤勉效力之事，常以喜讯达于朕躬圣听；盖因朕等屡以实事验证，你既以友谊之诚襄赞皇帝之尊位，又以亲族之天性劝导运筹诸事。你如此竭力展现忠诚，本不足为奇，因纯粹之爱将你与朕联结；你在此际事务与时局中显得如此德才卓著，亦不足为奇，因亲爱之表征【译注：indicium 此处或指爱之证据、信物，或为 indicium 之转写，但后者更常见于司法语境，此处从“表征”】，【这爱，朕对你的、如同对完美无瑕之挚友般迄今保持纯洁并仍然保持的爱】，早已因你至爱的内助、我们的侄女，借先前联姻而愈发深厚；如此，那起初植根于意愿感念中的血缘同一，便以某种必然的纽带巩固了关系，以至于意愿的种子既已转化为义务，朕之尊上便既愿且应，理所当然地嘉勉提升你的荣耀。为此，你审慎之才，——朕实以坦诚之言相告——，当锐意进取，在日常事务中以可嘉之行动展现你高贵之形象；当锐意进求，使初结之花繁的友谊，在我等姻亲之增进中结出硕果；当锐意作为，使时光流转中你既以姻亲身份自处，又能以坚定之心信赖于朕，犹如信赖亲人，何况，除了朕恩许于你的丰沛恩典之外，朕更愿视你为心腹之友，超乎他人，并渴望敬重你，如同敬重至亲的姻亲一般。

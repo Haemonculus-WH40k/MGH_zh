@@ -1,0 +1,11 @@
+# Cap. LXXXIV
+
+## Capitaneo respondet, commendans eum de processu habito per eum, et instruit qualiter sit processurus.
+
+## Latin
+
+Consueta benignitate recepit Excellentia nostra literas, per te nostro culmini destinatas et vidimus ipsarum continentiam diligenter. Super eo sane, quod scripsisti, te propter quaedam diversimode intellecta de statu civitatis Thaurini quae tibi videbantur obliqua, cum magna militum et peditum comitiva, personaliter ad terram ipsam gressus tuos cum festinantia direxisse, et ibidem hincinde diligenter exquisitis, et caute, quae ad cautelam servitiorum nostrorum exquirenda pensasti, quosdam, qui videbantur magis esse suspecti, per personas capi statuens, ipsosque faciens cum diligentia custodiri: tuum exinde studium, et industriam evidentem, quae circa nostrae Celsitudinis augmentum, in his et aliis te apponere cognoscimus, non immerito commendamus. Verum cum tam propter rebellium nostrorum depressionem, ad quam efficacius inferendam te studiosum fore credimus et attentum, quam propter fidelium nostrorum salutarem defensionem, milites tuae jurisdictionis dudum suppositos, equis et armis volumus esse munitos, ita, quod per defectum armorum et equorum, servitia nostra non remaneant imperfecta; devotioni tuae praecipiendo mandamus, quatenus sic instanter procures et facias, quod omnes tuae jurisdictioni subjecti, qui equos retinere debent et arma, sint ipsis ut convenit sine mora qualibet praeparati, ad nostrum servitium tecum laudabiliter processuri. Super aliis vero quae scripsisti Celsitudo nostra providere curabit, prout honori nostro viderimus expedire. Tu autem in his et aliis servitiis nostris, et maxime circa diligentem custodiam civitatis Thaurini, taliter praevigil et studiosus intendas, quod ipsa operum patens efficacia, in Excellentiae nostrae oculis te, juxta solitum, commendabilem repraesentet.
+
+## Chinese Translation
+
+朕以惯常之仁厚，收悉汝呈递予吾至尊之函件，并已细览其中内容。诚然，关于汝所陈之事——即因对都灵城（Thaurinum）之状况有种种理解歧异，且于汝视之似属反常，故亲率大队骑兵与步兵，急赴该地；并于当地经各方周密探查，以汝为保朕之事务万全计而审慎考量之方式，将数名行迹尤显可疑者缉拿，并命人严加看守——对于汝在此中展现之热忱与卓著勤勉，知汝在此等及其他事务上皆致力于光大朕之威仪，朕特此嘉许，汝诚然当之无愧。然而，既为弹压朕之叛党，朕信汝必专注且用命以行有效之打击，亦为忠良臣民之安妥防护，朕要求凡久属汝管辖之骑士，皆须战马与武器齐备，务使朕之役务不致因缺乏武器与战马而有失周全；朕特此谕令，命汝即刻筹措并实行，确保凡受汝管辖、理应拥有战马与武器之人，皆能准备妥当，毫无延宕，以便随汝荣耀地推进朕之事业。至于汝来函所陈其他事宜，朕之至高权威将依朕之尊荣所视为相宜者，予以关照办理。汝于此事及朕交办之其他诸役，尤重于都灵城之严谨防范上，须如此警觉且勤勉用心，以使汝行事之卓著成效，能如惯常般，将汝呈现为可堪嘉许之人于朕之威仪眼前。

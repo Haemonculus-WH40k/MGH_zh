@@ -1,0 +1,17 @@
+# Cap. XIV
+
+## Baronibus suis, super scholis ratiocinii, in diversis mundi partibus dividendis.
+
+## Latin
+
+Quantumcunque sibi litigiosa Liguria, nostri pars utique laboriosa dominii, nostram praesentiam vendicet, et exhauriat curas nostras, inest tamen nobis cura praecipua de regni, seu verius domus nostrae quantalibet utilitate tractanda, nedum procellas Imperii laboriose componimus, aliquid negligenter omittere circa domestica videamur. Nuper itaque non minus utili, quam necessaria deliberatione providimus, quod residentia nostra, licet sit Baroli discreta per scholas, nostris tamen est dispendiosa profectibus, et venientibus interdum a remotis ratiocinia posituris officialibus sumptuosa, sicque propterea ne fiscalibus obviet utilitatibus, et privatis, scholas ipsas pro concurrentium utilitate localiter recte providimus dividendas, usque cujuslibet vestrum officium infra decretorum fines sibi justitiaria termini limitetur. Quocirca fidelitati vestrae praecipimus, quatenus receptis praesentibus nostrae Serenitatis apicibus, vos notarie Mirabilis, et magister Martine, scholam ratiocinii vestri Neapoli statuatis, moraturi ibidem, et officialium Justitiariatus Terrae laboris et Hydrunti ratiocinia recepturi. Tu judex Jacobe Symbaldi, scholam Melfiae decretis tibi similiter captivatae et basilicatae, Justitiariatibus studeas ordinare. Tu quoque judex [Petre, scholam tuam Caracciae deputes, et officium tuum in Justitiariaribus Aprucii, Terrae laboris et Principatus, tam sollicite quam fideliter exequaris, sigillum vestrum singulis decretum, cujuscunque roboratum signo, notanter habiturus. Cumque multa sit laus et salus, ubi multa sunt consilia, volumus et mandamus, quod vobiscum ad invicem super dubiis conferatis, quod de quacunque re magis expediens et salubre videritis, communi consilio discussuri. Mandata quoque generalia, quae communiter hactenus recepistis, ut particularis ex eis et integra nobis habilitas offeratur, authenticari per manum publicam faciatis, authenticatis taliter authenticorum robur penes quoscunque remanserint habituris, quod si notariorum singularitatem insufficientem forte videritis, adjectione novorum, eorum insufficientiam utiliter suppleatis. Vos praeterea notarie Mirabilis et judex Bartholomaee, oculos apertos specialiter habere praecipimus, super pelago ratiocinii Thomae de Brundusio et Siclariorum Apuliae, ut per incuriam vestram in eos, nostra Curia non fraudetur.
+
+## Chinese Translation
+
+Cap. I.
+
+**关于在帝国各地分设财务审查官署事**
+
+纵使那好争讼的利古里亚（Liguria）——我邦辖域内一块令人劳神费力的领地——如何索取朕的驾临，耗竭朕的心神，然而，朕心中仍怀有一项首要职责，便是为王国，或更确切地说，为我家族的无论何种利益殚精竭虑，以免在我等艰辛安抚帝国风暴之时，看似有丝毫疏忽于内政之经营。为此，近日朕本着既不乏裨益、又实属必要的审慎，做出如下安排：朕之行在所，虽在巴罗利（Barolum）依职司分设各署，却于我财政之增益多有耗损，且对那远道而来、呈报账目的官员而言，亦耗费巨大。故而为避免有损于国库及私人利益，朕已切合实际地就此做出妥善安排，即将各署依据事务便利分设于各地，自此以后，尔等各自之职司，当以裁定所划定之司法辖区为限。
+
+据此，朕诏命尔等臣属，尔等一接此朕躬亲笔诏书，你，公证人米拉比利斯（Mirabilis），及你，马蒂努斯（Martinus）师傅，当将那财务审查之署设于那不勒斯（Neapolis），长驻该处，受理拉沃里斯之地（Terra Laboris）及奥特朗托（Hydruntum）两司法区的官员账目。你，法官雅各布斯·辛巴尔迪（Jacobus Symbaldus），当悉心在梅尔菲（Melfia）设置尔署，依裁定所定，其管辖范围当涵括卡皮塔纳塔（Captinata）与巴西利卡塔（Basilicata）两司法区。你，法官彼得鲁斯（Petrus），亦应将尔署设于卡拉恰（Caraccia），并在阿普鲁齐乌姆（Aprucium）、拉沃里斯之地及亲王领（Principatus）诸司法区内，既勤勉又忠实地履行尔职。尔等各自之印信，不论以何种标记确认，皆当为各自裁定所专用，并昭著其权威。再者，既有云“谋士众多，则功成与安稳众多”，朕特此旨意并谕令：尔等遇有疑难之处，当相互咨议，共商决策，凡尔等视为更为便利、稳妥之事，皆应以共同商议之方式定夺。此外，凡尔等历来共同领受之一般性训令，为使我等能据以掌握详备而整全的处置之权，尔等须令其经由官方之手公证确认。如此公证之后，无论原本留存于何人手中，其经公证之效力当被认可。倘若尔等发现现有公证人有所不足，则可适当增补新员，以补其缺。最后，朕特命你，公证人米拉比利斯，及你，法官巴托洛迈乌斯（Bartholomaeus），务必对托马斯·德·布伦杜西奥（Thomas de Brundusio）及阿普利亚（Apulia）的西克拉里人（Siclarii）那庞杂如海的账目审查一事，格外睁大双眼，严密监视，以免因尔等之失察，致使我朝廷蒙受欺诈。

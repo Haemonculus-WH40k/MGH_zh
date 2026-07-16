@@ -1,0 +1,21 @@
+# Cap. VIII
+
+## Senatoribus et popolo Romano, inferendo graves minas.
+
+## Latin
+
+Praeteritae culpae vestrae convitium, quod sub patientiae hactenus regularitate deduximus, factionum vestrarum faciente protervia, cum tolerantia pati ulterius non valemus, sed in hoc motus nostros restringimus, et audaciae refrenamus instinctum, ne posset ultio culpam excedere, et a quo trames juris oritur, injustitiae limites deviarent. Quanquam enim Serenitati nostrae, quam divina potentia servare non cessat, subjaceat omne quod volumus, nostrae tamen voluntatis Imperium de rationis fonte colligimus, et de virtutum puteo temperamus. Dudum etenim si sub testa nucleus non celatur, dum victrix aquila nostri processus praevia, in Romanis praediis victricia signa pandebat, dum castrorum stabilitate micantium, angulos vestrae perfidiae tingebamus dum nostrae victoriae gladius qui vinci nescivit, per vicinitatis instantiam nobis hactenus cuspide minabatur, dum nostrae potentiae fremitu terror et strepitus, sic gressus vestros praecluserat, sic pusillanimitis affatus oppresserat, sicut in experientiae libro legere potuistis, quod cordis cogitatio palpitabat intrinsecus, ne dum quod in modum audaciae imo insipientiae [ut loquela sit proprior] Caesaream incitaretis victoriam, ad ultionis meritae funera: sicut improvide noviter attemptastis, non attendentes, quod, licet nostra non sit ubique corporalis praesentia, nostrae tamen ad longinquos orbis terminos laxantur habenae, potati de calice Babylonis. Nam posse vestrum contra nostram potentiam, non posse putari fecistis, in partibus Tyburtinis ova rumpentes aspidum, ex quibus jam prodiit regulus, telas araneas texuistis. Cum itaque omnis subita rerum mutatio, non sine quodam quasi conflictu proveniat animorum, iniquae temeritatis eventibus, potentiae nostrae proposito mutante judicium, vestra dissolvetur Babylon. Damascus deficiet, sufflatorium consumetur in igne. Sedes ab Aquilone posita corruet, et lumbare vestrum circa lumbos appositum, computrescere faciet nostrae Serenitatis industria, quam divinus intuitus non desinit illustrare. Et quae livorem cujuslibet tenebrositatis obducit, cuique se fere totus orbis inclinat, faciente divina clementia, per locum a genere urbem sibi sentiet emolliri, ut a quo Romanum Imperium meruit nominari, vere nobis Roma subjaceat, quibus terra servit, mare favet, et ad nutum omnia desiderata succedunt.
+
+## Chinese Translation
+
+以下为对应中文译文：
+
+---
+
+**Cap. I.**
+
+对你们往日之罪的谴责——迄今为止，我们尚能以克制的耐心予以容忍——如今因你们派系的放肆妄为，已使我们不堪继续忍受。于是，于此中我们抑制自身的冲动，勒住勇气的本能，以免报复越过罪责的界限，免得正义之途的本源偏离了公正的轨范。因为，尽管一切吾等所欲之事皆臣服于我们那受神圣大能不懈护佑的陛下，我们仍从理性的源泉中汲取意志的统御，并以德行之井水加以调和。
+
+此前不久，诚如硬壳无法永远包裹果仁，当所向披靡的雄鹰作为我们行军的先驱，在罗马的领地上展开其胜利的旗帜时；当我们用闪耀军营的稳固，浸染你们背信弃义的每一个角落时；当我们的胜利之剑——那不知失败为何物的利刃——因其近在咫尺，至今仍以剑锋威胁着你们时；当我们的威势所掀起的恐惧与喧嚣，曾如此这般阻断了你们的去路，摧垮了你们的胆魄，正如你们在经验之书中能够读到的那样：你们内心深处的念头因恐惧而战栗，唯恐以如此鲁莽——实则愚蠢（恕我直言）的方式刺激凯撒的胜利，招致应得的复仇之死。然而你们却不加思量，正如近来你们所贸然尝试的那样，未曾考虑到，虽然我们并非无处不在亲身临在，但对那饮了巴比伦之杯的你们而言，我们统治的缰绳却足以伸展至世界的遥远尽头。因为你们在蒂沃利一带打碎了毒蛇卵，却由此孵出了毒蛇，编织了蜘蛛网，此举已使你们对抗我们威能的所谓力量，被视为微不足道。
+
+因此，既然一切事物的骤然变故，无不伴随着近乎心灵的交战方能发生，那么，对于你们这些不义鲁莽的行径，我们的威权之决心将改变判决：你们的巴比伦将被摧毁，大马士革必将衰落，熔炉将在火中焚尽。那设在北方的座席必将倒塌，你们束在腰间的腰带，必在我们陛下——那永受神圣睿智启迪的陛下——的经略下朽烂。因着神圣仁慈的作为，那位照亮一切阴暗嫉妒、令几乎整个世界皆向其折服者，将凭其出身与族系，使那城邦感知到自身的软化，于是，正因为罗马帝国由此城得名，罗马将真正臣服于我们：大地为我们服役，海洋向我们示好，一切渴慕之物皆随我们的心意而至。

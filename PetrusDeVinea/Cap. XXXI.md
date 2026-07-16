@@ -1,0 +1,11 @@
+# Cap. XXXI
+
+## Justitiario regni super exactione pecuiniae.
+
+## Latin
+
+Dum magnae devotionis indicia, et multiplicium servitiorum onera, quae successive fidelibus nostris tuae jurisdictionis incumbunt, infra nos ipsos debita consideratione pensamus, eis benignae mentis affectu compatimur, et inviti quodammodo nostris oneribus eorum colla submittimus, quos sub pacis deliciis et optatae quietis gaudio sub alarum nostrarum velamine cupimus delectari, quia tamen in victorioso exercitu nostro firmato dudum in obsidione, de quo nobis et fidelibus nostris triumphum praestitit divina clementia, post labores tam armatione felicis stolii, quam in stipendiis bellatorum, et aliis quae circa expeditionem exercitus, expugnationis qualitas requisivit, sic aerarium nostrum ipsius rei gloriosus effectus exhausit, ut ad solutionem multiplicium debitorum, quae propterea Camera nostra contraxit, sine fidelium nostrorum suffragio fisci nostri non suppetunt facultates, quantitatem pecuniae, interclusa praesentibus cedula comprehensam, ab hominibus jurisdictionis tuae providimus exigendam, fidelitati tuae firmiter praecipiendo mandantes, quatenus diligenti examinatione praehabita, quantum summa pecuniae anno proximo praeterito in jurisdictione ipsa imposita, praesentem excesserit quantitatem, eam sicut summarie inveneris, minoratam sic inter universas jurisdictionis tuae civitates et loca particulari numeratione distribuas, et sic proportionabiliter partiaris, ut nulla propterea contra legem distributionis ipsius materia quaestionis exorta, pecuniam ipsam per te taliter imponendam celeriter exigi, et festinanter recolligi facias, et ad Cameram nostram cum omni qua poteris celeritate transmittas.
+
+## Chinese Translation
+
+当我们以应有的考量在心中权衡，那显明于你治下忠信臣仆的极大虔诚之表征，以及他们先后肩负的诸多劳役之重担时，我们便以仁慈之心同情他们，并在某种程度上不愿将他们置于我们的重轭之下，因为我们本渴望他们在和平的欢愉与所盼之安宁的喜悦中，于我们羽翼的庇护下得享快乐。然而，由于我久困于围城之际、赖神圣恩慈已赐予我等及忠信臣仆以凯旋的胜利大军，在经历了既有为这幸运舰队备战之辛劳，又有支付战士薪饷之耗费，以及那与大军远征和攻坚之战事性质相关的种种开支之后，此光荣功业竟如此耗尽了我们的国库，以至若无我忠信臣仆之援助，我府库之财源已不足以清偿我财政署因此事而积欠之累累债务。故此，我们决议，应向你所辖之民征收一笔钱款，其总额载于随附之清单中。我们特此严令训示于你：在事先勤加查核之后，凡见在上一年度该辖区内所征钱款总数超过当前定额者，你须按所查明之大略，将此超出之数予以削减，并如此按特定数额分配于你治下所有城镇及地方，且要按比例分摊，务必使有关分配法令之事，不致因此滋生任何争议。你当如此摊派，并令此项钱款迅速征收、火速解齐，并以你所能达到的最快速度，汇至我财政署。

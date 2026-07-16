@@ -1,0 +1,11 @@
+# Cap. XXIII
+
+## Capitaneo suo in Thuscia, ut studiose procedat super eisdem.
+
+## Latin
+
+Sine literarum nostrarum judiciis vel expressionibus nunciorum, tuae devotionis industriam scire confidimus, quantum ex castro et villa, dum in fide nostra persisterent, nostris posset negotiis afferri compendium, quantumque per ea, si in partem contrariam cederent, grave dispendium timeretur velut in cujus gremio a nobis in Liguriam, et ad vos abinde praecipuo seu singulari, quin potius necessario transitu remanente, tanquam deficientibus aliis viarum passagiis, inde sit unica clavis ad januam, quae nobis nostrisque reserare potest et claudere transitum et regressum. Cum igitur villa ipsa, sicut nuper accepimus, a fidei nostrae semitis deviante, castrum praedictum in nostra devotione fideliter perseveret, fidelitatem tuam requirimus, mandantes expresse, quatenus ejusdem negotii circumstantias diligenter advertens, statim de consilio fidelium nostrorum Thusciae, quorum magis videris expedire, vias et modos operosus excogites, qualiter ad recuperationem villae ipsius, ac efficacem defensionem et observationem castri praefati aggregatis auxiliis celeriter succurratur: inducturus ad hoc efficaciter communia regionis ipsius, et commune civitatis praecipue: ut si unquam desiderant in personis et rebus ac supplicationibus suis, coram nobis favorem et gratiam invenire, statim circa recuperationem ejusdem villae, tuitionem castri, et pacificationem stratae, ac provinciae potenter et viriliter intendentes fidem, quam ad nos et Imperium habere tenentur ex debito, et eos semper promptam hucusque novimus habuisse per efficaciam operis fateantur.
+
+## Chinese Translation
+
+无需通过我们的书面裁决抑或使者的口头说明，我们便确信你凭借虔诚之心与勤勉，自然知晓：那座城堡及其所辖村镇，只要始终忠于我们，便能为吾等大业带来何等便利；而一旦沦为敌对，又将酿成何等深重之祸患。恰如拥于怀中之物，自此进出利古里亚（Liguria），乃至往返于你处，此处皆为唯一且独特、更加确切地说，是不可或缺之必经之途。因其余道路皆已不通，此地实乃那扇大门的唯一钥匙，能为吾等与吾辈之人开启或封锁通行与归返之路。故此，既闻该村镇近日已背离忠信之道，而前述城堡仍坚贞不渝地守于我之麾下，我等敦请你的忠诚，并明确命令如下：你须慎审此事诸般细节，即刻与我托斯卡纳（Thuscia）【译注：中世纪意大利地区名，大致对应今日之托斯卡纳大区】诸忠信臣属商议，择其中你认为最为得力者，殚精竭虑，谋划良策，聚集各方援军，火速致力于收复该村镇，并有效捍卫与固守前述城堡。为此，你须有效劝诱该地区诸自治体（communia）【译注：指当时意大利北部享有自治权的城邦或城市公社】，尤其是该城邦之自治体：若其无论在人身、财产还是呈于我等面前的请愿之事上，尚冀望得蒙恩宠垂青，便应立刻为收复此村镇、守护城堡、绥靖道路与地方之事，倾注全力，以刚强勇武之气概，用实际行动来彰显他们依职责所当持守的、且据我等迄今所知始终谨守的，对我等与帝国的忠忱。
