@@ -6,13 +6,7 @@
 
 Praeteritae culpae vestrae convitium, quod sub patientiae hactenus regularitate deduximus, factionum vestrarum faciente protervia, cum tolerantia pati ulterius non valemus, sed in hoc motus nostros restringimus, et audaciae refrenamus instinctum, ne posset ultio culpam excedere, et a quo trames juris oritur, injustitiae limites deviarent. Quanquam enim Serenitati nostrae, quam divina potentia servare non cessat, subjaceat omne quod volumus, nostrae tamen voluntatis Imperium de rationis fonte colligimus, et de virtutum puteo temperamus. Dudum etenim si sub testa nucleus non celatur, dum victrix aquila nostri processus praevia, in Romanis praediis victricia signa pandebat, dum castrorum stabilitate micantium, angulos vestrae perfidiae tingebamus dum nostrae victoriae gladius qui vinci nescivit, per vicinitatis instantiam nobis hactenus cuspide minabatur, dum nostrae potentiae fremitu terror et strepitus, sic gressus vestros praecluserat, sic pusillanimitis affatus oppresserat, sicut in experientiae libro legere potuistis, quod cordis cogitatio palpitabat intrinsecus, ne dum quod in modum audaciae imo insipientiae [ut loquela sit proprior] Caesaream incitaretis victoriam, ad ultionis meritae funera: sicut improvide noviter attemptastis, non attendentes, quod, licet nostra non sit ubique corporalis praesentia, nostrae tamen ad longinquos orbis terminos laxantur habenae, potati de calice Babylonis. Nam posse vestrum contra nostram potentiam, non posse putari fecistis, in partibus Tyburtinis ova rumpentes aspidum, ex quibus jam prodiit regulus, telas araneas texuistis. Cum itaque omnis subita rerum mutatio, non sine quodam quasi conflictu proveniat animorum, iniquae temeritatis eventibus, potentiae nostrae proposito mutante judicium, vestra dissolvetur Babylon. Damascus deficiet, sufflatorium consumetur in igne. Sedes ab Aquilone posita corruet, et lumbare vestrum circa lumbos appositum, computrescere faciet nostrae Serenitatis industria, quam divinus intuitus non desinit illustrare. Et quae livorem cujuslibet tenebrositatis obducit, cuique se fere totus orbis inclinat, faciente divina clementia, per locum a genere urbem sibi sentiet emolliri, ut a quo Romanum Imperium meruit nominari, vere nobis Roma subjaceat, quibus terra servit, mare favet, et ad nutum omnia desiderata succedunt.
 
-## Chinese Translation
-
-以下为对应中文译文：
-
----
-
-**Cap. I.**
+## Chinese Translation 致罗马元老与人民，向其发出严厉警告
 
 对你们往日之罪的谴责——迄今为止，我们尚能以克制的耐心予以容忍——如今因你们派系的放肆妄为，已使我们不堪继续忍受。于是，于此中我们抑制自身的冲动，勒住勇气的本能，以免报复越过罪责的界限，免得正义之途的本源偏离了公正的轨范。因为，尽管一切吾等所欲之事皆臣服于我们那受神圣大能不懈护佑的陛下，我们仍从理性的源泉中汲取意志的统御，并以德行之井水加以调和。
 
