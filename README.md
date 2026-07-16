@@ -4,4 +4,8 @@
 
 ……不是这玩意真的没有中文翻译吗，还是我查找大失败？
 
-附一些原文链接：https://www.dmgh.de/
+附一些原文链接：
+
+大部分文件：https://www.dmgh.de/
+
+Petrus de Vinea - Epistolarum libri VI：https://alim.unisi.it/dl/resource/558
